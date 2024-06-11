@@ -1,7 +1,7 @@
 # Curriculo
 Enzo Lima de Campos Sanches
 (11) 98991-0235
-seumelhoremail@xx.com
+00001102313166sp@aluno.educacao.sp.gov.br
 Linkedin: @ENZOCAMPOSSANCHES
 ________________________________________
 
